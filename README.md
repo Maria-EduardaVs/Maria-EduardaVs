@@ -7,4 +7,4 @@ Me chamo Maria Eduarda Vaiceulionis
 - Me divirto comendo e dormindo😶‍🌫️;
 - Gosto muito de conhecer lugares novos✈️.
 
-![](https://media1.tenor.com/m/YlBfgZ3_INcAAAAd/cat-kitty.gif)
+![](https://media1.tenor.com/m/EWRvErYGzPUAAAAC/bugs-bunny-looney-tunes.gif)
