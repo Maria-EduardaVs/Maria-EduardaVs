@@ -2,6 +2,7 @@
 
 Me chamo Maria Eduarda Vaiceulionis
 
+- Namoro um branquinho meu, Manoel.
 - Estudo contabilidade💰;
 - Desejo descobrir/desvendar alguns códigos😵;
 - Me divirto comendo e dormindo😶‍🌫️;
